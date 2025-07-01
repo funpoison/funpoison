@@ -2,7 +2,7 @@
   <img src="https://i.pinimg.com/736x/d3/07/c0/d307c042ad2f4c8e191f63875445f908.jpg" alt="mikey" width="500"/>
 </p>
 <p align="center">
-  murphy or mike ⸜( ˃ ▿ ˂ )⸝
+  murphy ⸜( ˃ ▿ ˂ )⸝
   he him only
 </p>
 <p align="center">
