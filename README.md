@@ -1,12 +1,11 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/d3/07/c0/d307c042ad2f4c8e191f63875445f908.jpg" alt="mikey" width="500"/>
+  <img src="https://i.postimg.cc/g023DpLF/ezgif-19b86875a7b2ad.png"/>
 </p>
 <p align="center">
-  murphy ⸜( ˃ ▿ ˂ )⸝
-  he him only
+  blaaa
 </p>
 <p align="center">
-i love my chemical romance A LOT !!!!!!
+bla bla
 </p>
 
 <p align="center">
