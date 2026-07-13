@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-jake or will  ⋆  he/him pronouns
+jake or will  ⋆  masc terms only
 </p>
 <p align="center">
 w2i preferred, as i'm usually afk (˶ˆᗜˆ˵)
